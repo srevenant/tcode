@@ -1,0 +1,1 @@
+Treasure Code is an original concept Copyright &copy; 2018 by Brandon Gillespie, around scavenger hunting.  It is excluded from any NDA works per the existing addendums that are in place on any standing NDAs.
